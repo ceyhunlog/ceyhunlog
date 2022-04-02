@@ -1,1 +1,1 @@
-👋 Hi, I’m @ceyhunlog
+👋 Hi, I’m Ceyhun
